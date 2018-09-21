@@ -5,5 +5,5 @@ click on the box of the same color under the screen.
 Follow the rhythm to get higher score
 Challenge with your friends.
 
-Cantact us if you have any problems
+Contact us if you have any problems
 Email : ConveyorLegend@gmail.com
